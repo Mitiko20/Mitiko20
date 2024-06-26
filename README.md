@@ -14,5 +14,4 @@ Estou realizando a migração de carreira para a área de TI.<br>
           
 </div><br>
 
-<p>Busco uma oportunidade de inserção no mercado de trabalho. </p><br>
 <p>Obrigada e volte sempre 👋</p><br>
